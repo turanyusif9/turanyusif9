@@ -1,4 +1,4 @@
-### Hi there :wave:, I am Turan. Check out my projects
+### Hi there :wave:, I am Turan.
 
 
 
